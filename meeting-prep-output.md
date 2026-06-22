@@ -1,4 +1,4 @@
-# Meeting Prep — 6/22/2026, 3:15:49 PM
+# Meeting Prep — 6/22/2026, 7:19:43 PM
 
 ## RockSalt Pilates: RockReform Strength -- San Mateo
 **Time:** 2026-06-22T17:00:00-07:00
@@ -9,58 +9,60 @@
 ---
 
 ## Key Logistics
-- **Arrive by 4:55 PM** — new clients must be there 5+ minutes early; late entry (5+ min) means forfeiture of class
+- **Arrive by 4:55 PM** (new client? arrive earlier to allow setup time)
 - **Parking:** Metered street parking available nearby
-- **Grip socks are required** — bring your own or purchase at the studio
+- **Late policy is strict** — more than 5 minutes late = no entry, class forfeited
+
+---
 
 ## What to Bring
-- ✅ Grip socks (mandatory)
-- ✅ Water bottle (recommended; filtered water available in studio)
-- ✅ Towel (recommended)
+- ✅ **Grip socks** (required — can purchase at studio)
+- ✅ Water bottle (filtered water available in studio)
+- ✅ Towel
 - ✅ Comfortable, form-fitting clothing
 
+---
+
 ## About the Class
-A full-body Reformer + Mat Pilates blend focused on lengthening, strengthening, and toning. All levels welcome. Expect energizing music and instructor attention to form.
+A full-body Reformer + Mat Pilates blend focused on strength, toning, and sculpting. Suitable for all levels. Expect energizing music and instructor attention to form.
 
 ---
 
 ## Open Questions / Follow-Up
-- **Confirm your booking is complete** — verify confirmation via ClassPass or RockSalt directly
-- **New or returning client?** If new, factor in extra setup time
-- Questions? Contact [classpass.com/help](http://classpass.com/help)
+- **Are you a new client?** If so, plan to arrive 10+ minutes early for safe reformer setup.
+- **Do you have grip socks?** Confirm before leaving — required as of Feb 2026.
+- Questions about booking or the class? Contact **classpass.com/help**
 
 ---
 
 ## Love Island Watch Party 🏝️
 **Time:** 2026-06-22T19:30:00-07:00
 
-## Meeting Prep: Love Island Watch Party 🏝️
-
-**Date/Time:** Monday, June 22, 2026 at 7:30 PM PDT
+## Love Island Watch Party – Prep Brief
+**Mon, June 22, 2026 · 7:30 PM PT**
 
 ---
 
 ### Context
-This appears to be a casual social gathering to watch Love Island together — low-stakes, no work agenda.
+This is a casual social watch party for Love Island — no work agenda, no formal attendees listed.
 
 ### What's Missing
-- **No attendees listed** — it's unclear who's coming or how many people to expect
-- **No location** — your place, someone else's, a bar?
-- **No description** — hosted by you or someone else?
+- **Guest list unclear** — no attendees added yet. Confirm who's coming so you know how much snacking/seating to plan for.
+- **No location specified** — your place, someone else's, a bar? Worth confirming.
+- **Which Love Island?** — UK, US, or another version? Make sure everyone's on the same page to avoid spoilers.
 
-### Suggested Follow-Ups
-- Confirm the venue and headcount
-- If you're hosting, sort out snacks, drinks, and seating
-- Check where Love Island is streaming and make sure you have access
-- Catch up on recent episodes so you're not lost in the drama
-
-### Quick Notes
-- No emails or documents tied to this, so it may have been arranged verbally or via text
-- Worth a quick message to whoever organized it to confirm details
+### Quick To-Dos
+- [ ] Send invites/confirm headcount
+- [ ] Check what episode/where the season is up to so you're caught up before the party
+- [ ] Arrange food, drinks, or decide if it's potluck
+- [ ] Confirm streaming access (Peacock for US, ITVX for UK, etc.)
 
 ---
 
-**Bottom line:** Fun evening, but a few logistics are unconfirmed. A quick check-in with attendees beforehand will save confusion. 🍹
+### Bottom Line
+Low-stakes, fun event — but a few logistical details need confirming before the night. Reach out to whoever's involved to lock down location and headcount.
+
+*Enjoy the drama! 🌹*
 
 ---
 

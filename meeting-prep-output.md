@@ -1,41 +1,30 @@
-# Meeting Prep — 6/22/2026, 9:56:52 PM
+# Meeting Prep — 6/22/2026, 11:16:56 PM
 
 ## RockSalt Pilates: RockReform Strength -- San Mateo
 **Time:** 2026-06-22T17:00:00-07:00
 
 # Prep Brief: RockSalt Pilates – RockReform Strength
-**Monday, June 22, 2026 · 5:00 PM**
+**Monday, June 22, 2026 | 5:00 PM | 306 E 5th Ave, San Mateo, CA 94401**
 
 ---
 
-## What It Is
-A Reformer + Mat Pilates class blending strength, lengthening, and toning with energizing music. Suitable for all fitness levels.
-
----
-
-## Getting There
-- **Address:** 306 E 5th Ave, San Mateo, CA 94401
-- **Parking:** Metered street parking available
-- **Arrive by 4:55 PM** — as a new client, you need at least 5 minutes for setup. Arriving 5+ minutes late = no entry and forfeited class.
-
----
+## What to Know
+- **Class type:** Reformer + Mat Pilates blend focused on strength, toning, and sculpting. Suitable for all levels.
+- **Duration/format:** Energizing, music-driven session with instructor attention to form throughout.
 
 ## What to Bring
-- ✅ **Grip socks** (required — can purchase at studio)
-- ✅ Water bottle (recommended; filtered water available)
-- ✅ Towel (recommended)
-- ✅ Comfortable, movement-friendly clothing
+- ✅ **Grip socks** – required (can purchase at studio)
+- ✅ **Water bottle & towel** – recommended (filtered water available on-site)
+- ✅ **Comfortable, flexible clothing**
 
----
+## Logistics
+- **Arrive by 4:55 PM** – as a new or returning client, arriving late (5+ min) means you forfeit the class, no exceptions.
+- **Parking:** Metered street parking available nearby.
 
 ## Open Questions / Follow-Up
-- Confirm your class booking is secured (check via ClassPass or rocksaltpilates.com)
-- If this is your first visit, review class details at **rocksaltpilates.com** to set expectations
-- Questions? Contact **classpass.com/help**
-
----
-
-**Bottom line:** Pack grip socks, leave early, and don't be late.
+- Do you have grip socks, or do you need to budget time to purchase them at the studio?
+- Have you completed any account setup or waiver through ClassPass? (Contact classpass.com/help if issues arise.)
+- Is this your first visit? If so, flag yourself as a new client upon arrival for proper reformer setup assistance.
 
 ---
 
@@ -48,23 +37,25 @@ A Reformer + Mat Pilates class blending strength, lengthening, and toning with e
 ---
 
 ### Context
-This looks like a casual social viewing event rather than a work meeting — no attendees, agenda, or supporting materials are on record.
+This looks like a casual social event – a group watch party for Love Island. No formal agenda, attendees, or background materials on file.
 
-### What's Missing / Open Questions
-- **Who's coming?** No attendees are listed — worth confirming guests and any RSVPs.
-- **Hosting or attending?** Unclear if you're the host or a guest somewhere else.
-- **Logistics unclear:** No location noted — your place, someone else's, a venue?
+### Things to Sort Out
+Since there's no detail in the invite, you may want to confirm a few basics beforehand:
 
-### Suggested Follow-Ups
-- Send or confirm invites/address details with attendees
-- If hosting: snacks, drinks, seating for a group viewing setup
-- Check what season/episode will air that night so you're caught up
-- Confirm the streaming platform (ITV2, Peacock, etc.) is accessible on your setup
+- **Who's coming?** No attendees are listed – worth checking if invites went out separately (text/group chat).
+- **Location** – your place, someone else's, a bar?
+- **What to bring** – drinks, snacks, a dish to share?
+- **Which Love Island?** (US, UK, a specific season?) – good to know so everyone's on the same page about spoilers.
+
+### Follow-Ups
+- [ ] Confirm headcount and location with the group
+- [ ] Check what episode/where in the season you'll be watching
+- [ ] Coordinate food & drinks if hosting
 
 ---
 
 ### Bottom Line
-Nothing work-related to prepare — the main risk is a logistical gap (no confirmed guests or location). A quick message to whoever's involved should sort it out. 🍹
+Low-stakes, fun evening – just needs a quick logistics check with whoever organized it. No prep docs needed, just good snacks. 🍹
 
 ---
 

@@ -1,65 +1,72 @@
-# Meeting Prep — 6/22/2026, 3:00:02 AM
+# Meeting Prep — 6/22/2026, 9:16:02 AM
 
 ## RockSalt Pilates: RockReform Strength -- San Mateo
 **Time:** 2026-06-22T17:00:00-07:00
 
-# RockSalt Pilates – RockReform Strength
-**Monday, June 22, 2026 | 5:00 PM | 306 E 5th Ave, San Mateo, CA 94401**
+# Prep Brief: RockReform Strength @ RockSalt Pilates
+
+**📅 Monday, June 22, 2026 | 5:00 PM | 306 E 5th Ave, San Mateo, CA 94401**
 
 ---
 
 ## Key Logistics
-- **Arrive by 4:55 PM** — late arrivals (5+ min) are turned away, no exceptions
+- **Arrive by 4:55 PM** (5 min early required as a new client — late entry not permitted)
 - **Parking:** Metered street parking available nearby
-- **Grip socks are required** — bring your own or purchase at the studio
-- Bring or buy: water bottle and towel
+- **Class format:** Reformer + Mat Pilates blend; strength-focused, all levels welcome
 
-## What to Expect
-A full-body Reformer + Mat Pilates blend focused on lengthening, strengthening, and toning. Energizing music, all levels welcome, with instructors emphasizing individual form and technique.
+---
 
-## What to Wear/Bring
-- Comfortable, form-fitting workout clothes
-- **Grip socks (mandatory)**
-- Water bottle and towel (recommended)
+## What to Bring
+- ✅ **Grip socks** (required — can purchase at studio if needed)
+- ✅ Water bottle (filtered water available in studio)
+- ✅ Towel
+- ✅ Comfortable, form-fitting athletic wear
+
+---
+
+## Good to Know
+- Instructors provide individual form corrections throughout class
+- Filtered water, grip socks, and towels available for purchase on-site
+- Questions? Contact ClassPass Help: classpass.com/help
 
 ---
 
 ## Open Questions / Follow-Up
-- [ ] Is this your first class at RockSalt? If so, budget extra time for setup orientation
-- [ ] Confirm your class booking is confirmed and paid
-- [ ] Check if you need to purchase grip socks in advance
-- [ ] Questions? Contact **classpass.com/help**
+- Have you booked/confirmed your spot? Double-check your ClassPass reservation.
+- First time here? Budget a few extra minutes for parking and finding the entrance.
+- Do you already own grip socks, or do you need to plan to buy a pair?
 
 ---
 
 ## Love Island Watch Party 🏝️
 **Time:** 2026-06-22T19:30:00-07:00
 
-## Meeting Prep: Love Island Watch Party 🏝️
+## Prep Brief: Love Island Watch Party 🏝️
 
-**Monday, June 22, 2026 · 7:30 PM PDT**
+**Meeting:** Monday, June 22, 2026 · 7:30 PM PDT
 
 ---
 
 ### Context
-This is a casual social watch party for Love Island — no work agenda, no formal attendees listed.
+This is a casual social watch party for Love Island — no professional agenda, no listed attendees, and no related materials on file.
 
-### Things to Sort Out
-Since details are sparse, a few open questions worth clarifying beforehand:
+### What to Sort Out Beforehand
+- **Guest list** — No attendees are listed. Confirm who's coming so you know how many people to expect.
+- **Logistics** — Hosting at your place, or is someone else? Nail down the location.
+- **Streaming access** — Make sure you have an active subscription to wherever Love Island is airing and that your setup (TV, sound, etc.) is ready.
+- **Food & drinks** — Worth planning snacks or a theme-appropriate spread ahead of time.
 
-- **Who's coming?** No attendees are listed — confirm guests so you know how many to expect.
-- **Your place or someone else's?** Nail down the location if it isn't set.
-- **Snacks/drinks?** Classic watch party stuff — worth coordinating so everyone isn't bringing the same thing.
-- **Which season/episode?** Make sure everyone is caught up to the same point to avoid spoilers.
-- **Streaming access?** Confirm who has the platform (Peacock, ITV, etc.) ready to go.
+### Open Questions
+- Is this a recurring watch party or one-off episode viewing?
+- Do guests know the details (address, what to bring)?
 
-### Follow-ups
-- Send out details to guests if you haven't already
-- Check if it's a BYOB situation or if you're hosting fully
+### Suggested Follow-Ups
+- Send out details/reminders to attendees.
+- Check the episode schedule so you know what's airing that night.
 
 ---
 
-**Bottom line:** Low-stakes, fun evening — just needs a little logistical tidying up on the guest and hosting side. Enjoy! 🌴
+*Low-stakes, high-fun. Main risk is a logistical mix-up — a quick message to your group should cover it.* 🌴
 
 ---
 

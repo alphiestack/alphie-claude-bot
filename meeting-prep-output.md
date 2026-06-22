@@ -1,37 +1,41 @@
-# Meeting Prep — 6/22/2026, 7:19:43 PM
+# Meeting Prep — 6/22/2026, 9:56:52 PM
 
 ## RockSalt Pilates: RockReform Strength -- San Mateo
 **Time:** 2026-06-22T17:00:00-07:00
 
 # Prep Brief: RockSalt Pilates – RockReform Strength
-**Monday, June 22, 2026 | 5:00 PM | 306 E 5th Ave, San Mateo, CA 94401**
+**Monday, June 22, 2026 · 5:00 PM**
 
 ---
 
-## Key Logistics
-- **Arrive by 4:55 PM** (new client? arrive earlier to allow setup time)
-- **Parking:** Metered street parking available nearby
-- **Late policy is strict** — more than 5 minutes late = no entry, class forfeited
+## What It Is
+A Reformer + Mat Pilates class blending strength, lengthening, and toning with energizing music. Suitable for all fitness levels.
+
+---
+
+## Getting There
+- **Address:** 306 E 5th Ave, San Mateo, CA 94401
+- **Parking:** Metered street parking available
+- **Arrive by 4:55 PM** — as a new client, you need at least 5 minutes for setup. Arriving 5+ minutes late = no entry and forfeited class.
 
 ---
 
 ## What to Bring
 - ✅ **Grip socks** (required — can purchase at studio)
-- ✅ Water bottle (filtered water available in studio)
-- ✅ Towel
-- ✅ Comfortable, form-fitting clothing
-
----
-
-## About the Class
-A full-body Reformer + Mat Pilates blend focused on strength, toning, and sculpting. Suitable for all levels. Expect energizing music and instructor attention to form.
+- ✅ Water bottle (recommended; filtered water available)
+- ✅ Towel (recommended)
+- ✅ Comfortable, movement-friendly clothing
 
 ---
 
 ## Open Questions / Follow-Up
-- **Are you a new client?** If so, plan to arrive 10+ minutes early for safe reformer setup.
-- **Do you have grip socks?** Confirm before leaving — required as of Feb 2026.
-- Questions about booking or the class? Contact **classpass.com/help**
+- Confirm your class booking is secured (check via ClassPass or rocksaltpilates.com)
+- If this is your first visit, review class details at **rocksaltpilates.com** to set expectations
+- Questions? Contact **classpass.com/help**
+
+---
+
+**Bottom line:** Pack grip socks, leave early, and don't be late.
 
 ---
 
@@ -39,30 +43,28 @@ A full-body Reformer + Mat Pilates blend focused on strength, toning, and sculpt
 **Time:** 2026-06-22T19:30:00-07:00
 
 ## Love Island Watch Party – Prep Brief
-**Mon, June 22, 2026 · 7:30 PM PT**
+**Mon, June 22 · 7:30 PM PDT**
 
 ---
 
 ### Context
-This is a casual social watch party for Love Island — no work agenda, no formal attendees listed.
+This looks like a casual social viewing event rather than a work meeting — no attendees, agenda, or supporting materials are on record.
 
-### What's Missing
-- **Guest list unclear** — no attendees added yet. Confirm who's coming so you know how much snacking/seating to plan for.
-- **No location specified** — your place, someone else's, a bar? Worth confirming.
-- **Which Love Island?** — UK, US, or another version? Make sure everyone's on the same page to avoid spoilers.
+### What's Missing / Open Questions
+- **Who's coming?** No attendees are listed — worth confirming guests and any RSVPs.
+- **Hosting or attending?** Unclear if you're the host or a guest somewhere else.
+- **Logistics unclear:** No location noted — your place, someone else's, a venue?
 
-### Quick To-Dos
-- [ ] Send invites/confirm headcount
-- [ ] Check what episode/where the season is up to so you're caught up before the party
-- [ ] Arrange food, drinks, or decide if it's potluck
-- [ ] Confirm streaming access (Peacock for US, ITVX for UK, etc.)
+### Suggested Follow-Ups
+- Send or confirm invites/address details with attendees
+- If hosting: snacks, drinks, seating for a group viewing setup
+- Check what season/episode will air that night so you're caught up
+- Confirm the streaming platform (ITV2, Peacock, etc.) is accessible on your setup
 
 ---
 
 ### Bottom Line
-Low-stakes, fun event — but a few logistical details need confirming before the night. Reach out to whoever's involved to lock down location and headcount.
-
-*Enjoy the drama! 🌹*
+Nothing work-related to prepare — the main risk is a logistical gap (no confirmed guests or location). A quick message to whoever's involved should sort it out. 🍹
 
 ---
 

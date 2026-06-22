@@ -1,72 +1,66 @@
-# Meeting Prep — 6/22/2026, 9:16:02 AM
+# Meeting Prep — 6/22/2026, 3:15:49 PM
 
 ## RockSalt Pilates: RockReform Strength -- San Mateo
 **Time:** 2026-06-22T17:00:00-07:00
 
-# Prep Brief: RockReform Strength @ RockSalt Pilates
-
-**📅 Monday, June 22, 2026 | 5:00 PM | 306 E 5th Ave, San Mateo, CA 94401**
+# Prep Brief: RockSalt Pilates – RockReform Strength
+**Monday, June 22, 2026 | 5:00 PM | 306 E 5th Ave, San Mateo, CA 94401**
 
 ---
 
 ## Key Logistics
-- **Arrive by 4:55 PM** (5 min early required as a new client — late entry not permitted)
+- **Arrive by 4:55 PM** — new clients must be there 5+ minutes early; late entry (5+ min) means forfeiture of class
 - **Parking:** Metered street parking available nearby
-- **Class format:** Reformer + Mat Pilates blend; strength-focused, all levels welcome
-
----
+- **Grip socks are required** — bring your own or purchase at the studio
 
 ## What to Bring
-- ✅ **Grip socks** (required — can purchase at studio if needed)
-- ✅ Water bottle (filtered water available in studio)
-- ✅ Towel
-- ✅ Comfortable, form-fitting athletic wear
+- ✅ Grip socks (mandatory)
+- ✅ Water bottle (recommended; filtered water available in studio)
+- ✅ Towel (recommended)
+- ✅ Comfortable, form-fitting clothing
 
----
-
-## Good to Know
-- Instructors provide individual form corrections throughout class
-- Filtered water, grip socks, and towels available for purchase on-site
-- Questions? Contact ClassPass Help: classpass.com/help
+## About the Class
+A full-body Reformer + Mat Pilates blend focused on lengthening, strengthening, and toning. All levels welcome. Expect energizing music and instructor attention to form.
 
 ---
 
 ## Open Questions / Follow-Up
-- Have you booked/confirmed your spot? Double-check your ClassPass reservation.
-- First time here? Budget a few extra minutes for parking and finding the entrance.
-- Do you already own grip socks, or do you need to plan to buy a pair?
+- **Confirm your booking is complete** — verify confirmation via ClassPass or RockSalt directly
+- **New or returning client?** If new, factor in extra setup time
+- Questions? Contact [classpass.com/help](http://classpass.com/help)
 
 ---
 
 ## Love Island Watch Party 🏝️
 **Time:** 2026-06-22T19:30:00-07:00
 
-## Prep Brief: Love Island Watch Party 🏝️
+## Meeting Prep: Love Island Watch Party 🏝️
 
-**Meeting:** Monday, June 22, 2026 · 7:30 PM PDT
+**Date/Time:** Monday, June 22, 2026 at 7:30 PM PDT
 
 ---
 
 ### Context
-This is a casual social watch party for Love Island — no professional agenda, no listed attendees, and no related materials on file.
+This appears to be a casual social gathering to watch Love Island together — low-stakes, no work agenda.
 
-### What to Sort Out Beforehand
-- **Guest list** — No attendees are listed. Confirm who's coming so you know how many people to expect.
-- **Logistics** — Hosting at your place, or is someone else? Nail down the location.
-- **Streaming access** — Make sure you have an active subscription to wherever Love Island is airing and that your setup (TV, sound, etc.) is ready.
-- **Food & drinks** — Worth planning snacks or a theme-appropriate spread ahead of time.
-
-### Open Questions
-- Is this a recurring watch party or one-off episode viewing?
-- Do guests know the details (address, what to bring)?
+### What's Missing
+- **No attendees listed** — it's unclear who's coming or how many people to expect
+- **No location** — your place, someone else's, a bar?
+- **No description** — hosted by you or someone else?
 
 ### Suggested Follow-Ups
-- Send out details/reminders to attendees.
-- Check the episode schedule so you know what's airing that night.
+- Confirm the venue and headcount
+- If you're hosting, sort out snacks, drinks, and seating
+- Check where Love Island is streaming and make sure you have access
+- Catch up on recent episodes so you're not lost in the drama
+
+### Quick Notes
+- No emails or documents tied to this, so it may have been arranged verbally or via text
+- Worth a quick message to whoever organized it to confirm details
 
 ---
 
-*Low-stakes, high-fun. Main risk is a logistical mix-up — a quick message to your group should cover it.* 🌴
+**Bottom line:** Fun evening, but a few logistics are unconfirmed. A quick check-in with attendees beforehand will save confusion. 🍹
 
 ---
 

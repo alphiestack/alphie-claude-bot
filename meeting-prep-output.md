@@ -1,33 +1,35 @@
-# Meeting Prep — 6/23/2026, 2:35:19 AM
+# Meeting Prep — 6/24/2026, 8:31:19 PM
 
-## Love Island Watch Party 🏝️
-**Time:** 2026-06-22T19:30:00-07:00
+## Matcha 🍵
+**Time:** 2026-06-25T12:00:00-07:00
 
-## Meeting Prep: Love Island Watch Party 🏝️
+# Prep Brief: Matcha ☕
 
-**Date/Time:** Monday, June 22, 2026 at 7:30 PM (PDT)
-
----
-
-### Context
-This appears to be a casual social event — a group watch party for Love Island. No formal agenda, attendees, or background documents are on file.
-
-### What's Missing / Open Questions
-- **Who's coming?** No attendees are listed — worth confirming the guest list.
-- **Logistics unclear** — Is this at your place or someone else's? Do you need to prepare food, drinks, or seating?
-- **Which season/episode?** Worth knowing where the show is in its run so everyone's on the same page (and no spoilers are accidentally dropped).
-
-### Suggested Follow-Ups
-- ✅ Confirm location and headcount with organizer/guests
-- ✅ Coordinate snacks/drinks if hosting
-- ✅ Catch up on recent episodes if you're behind
+**When:** Thursday, June 25, 2026 at 12:00 PM (PDT)
 
 ---
 
-### Bottom Line
-Low-stakes, high-fun. The main prep is social and logistical rather than professional. Reach out to whoever initiated the plan to nail down the basics.
+## Situation
+There's very little to work with here — no attendees, no description, no related emails or documents. This could be anything from a casual coffee/tea catch-up to a placeholder someone dropped on your calendar.
 
-Enjoy the drama! 🌹
+---
+
+## Before the Meeting
+- **Clarify the purpose** — Do you know what this is actually about? The emoji suggests something informal, but worth confirming.
+- **Check who called it** — Even without listed attendees, your calendar invite may show an organizer. That's your best clue.
+- **Is this a recurring block?** — Could be personal time, a standing chat, or a reminder rather than a formal meeting.
+
+---
+
+## Open Questions
+- Who are you meeting with (if anyone)?
+- Is there an agenda or topic you're expected to prepare for?
+- Do you need to bring anything (notes, a decision, a status update)?
+
+---
+
+## Bottom Line
+No action required beyond **confirming what this meeting actually is** before you show up. A quick message to the organizer would resolve most of the uncertainty.
 
 ---
 

@@ -1,35 +1,33 @@
-# Meeting Prep — 6/24/2026, 8:31:19 PM
+# Meeting Prep — 6/24/2026, 10:10:26 PM
 
 ## Matcha 🍵
 **Time:** 2026-06-25T12:00:00-07:00
 
-# Prep Brief: Matcha ☕
-
-**When:** Thursday, June 25, 2026 at 12:00 PM (PDT)
+# Prep Brief: Matcha 🍵
+**Thu, June 25, 2026 · 12:00 PM PDT**
 
 ---
 
 ## Situation
-There's very little to work with here — no attendees, no description, no related emails or documents. This could be anything from a casual coffee/tea catch-up to a placeholder someone dropped on your calendar.
-
----
-
-## Before the Meeting
-- **Clarify the purpose** — Do you know what this is actually about? The emoji suggests something informal, but worth confirming.
-- **Check who called it** — Even without listed attendees, your calendar invite may show an organizer. That's your best clue.
-- **Is this a recurring block?** — Could be personal time, a standing chat, or a reminder rather than a formal meeting.
+There's very little to work with here — no attendees, no description, no related emails or documents. This appears to be a **personal placeholder or informal meeting** (possibly a lunch/coffee break, a casual catch-up, or a reminder to make matcha).
 
 ---
 
 ## Open Questions
-- Who are you meeting with (if anyone)?
-- Is there an agenda or topic you're expected to prepare for?
-- Do you need to bring anything (notes, a decision, a status update)?
+- Is this a personal break or an actual meeting with someone?
+- If it's a meeting, **who are the attendees?** The calendar entry may be missing them.
+- Is there a location or video link you need to confirm?
 
 ---
 
-## Bottom Line
-No action required beyond **confirming what this meeting actually is** before you show up. A quick message to the organizer would resolve most of the uncertainty.
+## Suggested Follow-Ups
+- ✅ Double-check the invite for missing details (attendees, link, location)
+- ✅ If it's a social/casual meetup, confirm with the other party that you're still on
+- ✅ If it's just a personal break — enjoy your matcha, no prep needed 🍵
+
+---
+
+**Bottom line:** This looks more like a personal block than a formal meeting. Verify the details are complete and confirm with anyone who should be involved.
 
 ---
 

@@ -1,29 +1,34 @@
-# Meeting Prep — 6/25/2026, 8:24:12 AM
+# Meeting Prep — 6/25/2026, 11:34:24 AM
 
 ## Matcha 🍵
 **Time:** 2026-06-25T12:00:00-07:00
 
-# Meeting Prep: Matcha 🍵
+## Meeting Prep: Matcha 🍵
 **Thursday, June 25, 2026 · 12:00 PM PDT**
 
 ---
 
-## Situation
-Details are sparse — no attendees, description, or related materials are on record. This could be a personal break, a casual coffee/tea chat, or an informal meeting that wasn't fully documented.
+### Situation
+There's very little to go on here — no attendees, no description, no related emails or documents. This appears to be a personal calendar block, likely a lunch break, tea/coffee chat, or a casual catch-up.
 
-## Open Questions
-- **Who is this with?** No attendees are listed — confirm if someone should be added.
-- **What's the purpose?** Social catch-up, brainstorm, or a specific agenda item?
-- **Location/format?** In-person, virtual, or just a personal reminder?
+### Likely Scenarios
+- **Personal time** (matcha break, lunch ritual)
+- **Informal social meetup** at a café
+- **Low-key networking or casual chat** with someone not yet added
 
-## Recommended Follow-Ups
-- [ ] Check if there's a missing calendar invite from the other party
-- [ ] Confirm venue or video link if applicable
-- [ ] Add a description/agenda so context isn't lost
+### Open Questions
+- Who are you meeting, if anyone?
+- Is there a location you need to travel to?
+- Is there an underlying agenda (a conversation you've been meaning to have)?
+
+### Suggested Follow-Ups Before the Meeting
+- [ ] Confirm if this involves another person and add them as an attendee
+- [ ] Add a location if you're meeting somewhere specific
+- [ ] Note any topic you want to cover so you don't forget
 
 ---
 
-> **Bottom line:** There's not enough information to prep substantively. The most useful next step is clarifying who this is with and why — then you'll know what to bring to the table (besides matcha). 🍵
+**Bottom line:** Nothing urgent to prepare — but if this is more than a solo break, a quick check of recent texts or messages may surface context that didn't make it onto the calendar.
 
 ---
 

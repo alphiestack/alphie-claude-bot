@@ -1,33 +1,32 @@
-# Meeting Prep — 6/24/2026, 10:10:26 PM
+# Meeting Prep — 6/25/2026, 12:02:03 AM
 
 ## Matcha 🍵
 **Time:** 2026-06-25T12:00:00-07:00
 
-# Prep Brief: Matcha 🍵
+## Prep Brief: Matcha 🍵
 **Thu, June 25, 2026 · 12:00 PM PDT**
 
 ---
 
-## Situation
-There's very little to work with here — no attendees, no description, no related emails or documents. This appears to be a **personal placeholder or informal meeting** (possibly a lunch/coffee break, a casual catch-up, or a reminder to make matcha).
+### Situation
+Very little context is available — no attendees, description, related emails, or documents are linked to this event.
+
+### What This Likely Is
+Given the casual name and lunchtime slot, this is probably a **coffee/tea chat or informal catch-up** rather than a formal work meeting.
+
+### Open Questions to Clarify Before You Go
+- Who are you meeting, and did the invite get sent outside your tracked accounts?
+- Is there a specific agenda, or is this a general check-in?
+- Any location or logistics you need to confirm?
+
+### Suggested Follow-Ups
+- ✉️ **Check your personal email or texts** for context on who/where
+- 📍 **Confirm the location** if it's in-person
+- 🗒️ If it's a networking or exploratory conversation, jot down 2–3 topics you'd like to cover in advance
 
 ---
 
-## Open Questions
-- Is this a personal break or an actual meeting with someone?
-- If it's a meeting, **who are the attendees?** The calendar entry may be missing them.
-- Is there a location or video link you need to confirm?
-
----
-
-## Suggested Follow-Ups
-- ✅ Double-check the invite for missing details (attendees, link, location)
-- ✅ If it's a social/casual meetup, confirm with the other party that you're still on
-- ✅ If it's just a personal break — enjoy your matcha, no prep needed 🍵
-
----
-
-**Bottom line:** This looks more like a personal block than a formal meeting. Verify the details are complete and confirm with anyone who should be involved.
+> **Bottom line:** Not enough info to prep content — focus first on confirming the basics (who, where, why). If it's a casual chat, just show up curious and ready to listen.
 
 ---
 

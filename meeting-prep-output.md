@@ -1,34 +1,29 @@
-# Meeting Prep — 6/25/2026, 4:58:28 AM
+# Meeting Prep — 6/25/2026, 8:24:12 AM
 
 ## Matcha 🍵
 **Time:** 2026-06-25T12:00:00-07:00
 
-## Prep Brief: Matcha 🍵
-**Thu, June 25 · 12:00 PM PDT**
+# Meeting Prep: Matcha 🍵
+**Thursday, June 25, 2026 · 12:00 PM PDT**
 
 ---
 
-### Situation
-There's very little to go on — no attendees, no description, no related emails or documents. This appears to be a **personal block or placeholder** on your calendar rather than a formal meeting.
+## Situation
+Details are sparse — no attendees, description, or related materials are on record. This could be a personal break, a casual coffee/tea chat, or an informal meeting that wasn't fully documented.
 
-### Likely Scenarios
-- A **lunch break or personal errand** (e.g., grabbing matcha somewhere)
-- A **casual catch-up** with someone not yet added
-- A **reminder** for a habit or ritual
+## Open Questions
+- **Who is this with?** No attendees are listed — confirm if someone should be added.
+- **What's the purpose?** Social catch-up, brainstorm, or a specific agenda item?
+- **Location/format?** In-person, virtual, or just a personal reminder?
 
-### Open Questions
-- Is this actually a meeting, or personal time?
-- If someone is joining you — who, and is there an agenda?
-- Do you need to confirm a location or order ahead?
-
-### Recommended Follow-Ups
-- [ ] Clarify if attendees need to be added
-- [ ] Check if there's a venue or logistics to confirm
-- [ ] If it's intentional focus/break time, no action needed
+## Recommended Follow-Ups
+- [ ] Check if there's a missing calendar invite from the other party
+- [ ] Confirm venue or video link if applicable
+- [ ] Add a description/agenda so context isn't lost
 
 ---
 
-**Bottom line:** Nothing urgent to prepare — but worth a 30-second calendar check to confirm whether this involves anyone else before the day arrives. 🍵
+> **Bottom line:** There's not enough information to prep substantively. The most useful next step is clarifying who this is with and why — then you'll know what to bring to the table (besides matcha). 🍵
 
 ---
 

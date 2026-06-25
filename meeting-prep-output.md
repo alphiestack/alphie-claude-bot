@@ -1,34 +1,29 @@
-# Meeting Prep — 6/25/2026, 11:34:24 AM
+# Meeting Prep — 6/25/2026, 2:09:12 PM
 
 ## Matcha 🍵
 **Time:** 2026-06-25T12:00:00-07:00
 
-## Meeting Prep: Matcha 🍵
-**Thursday, June 25, 2026 · 12:00 PM PDT**
+## Matcha ☕ – Prep Brief
+**Thu, June 25 · 12:00 PM PT**
 
 ---
 
 ### Situation
-There's very little to go on here — no attendees, no description, no related emails or documents. This appears to be a personal calendar block, likely a lunch break, tea/coffee chat, or a casual catch-up.
-
-### Likely Scenarios
-- **Personal time** (matcha break, lunch ritual)
-- **Informal social meetup** at a café
-- **Low-key networking or casual chat** with someone not yet added
+No attendees, description, related emails, or documents are associated with this event. It's unclear whether this is a personal break, a placeholder, or a working meeting.
 
 ### Open Questions
-- Who are you meeting, if anyone?
-- Is there a location you need to travel to?
-- Is there an underlying agenda (a conversation you've been meaning to have)?
+- **What is this, actually?** A lunch break? A coffee/matcha run? A meeting with someone not yet added?
+- If it's a real meeting, **who should be invited** and has that been communicated?
+- Is there a **prep document, agenda, or decision** expected?
 
-### Suggested Follow-Ups Before the Meeting
-- [ ] Confirm if this involves another person and add them as an attendee
-- [ ] Add a location if you're meeting somewhere specific
-- [ ] Note any topic you want to cover so you don't forget
+### Suggested Follow-Ups
+- [ ] Confirm whether this requires any attendees or materials
+- [ ] Add a description/agenda if others are involved
+- [ ] If it's a personal block (e.g., a midday break), no action needed — enjoy the matcha 🍵
 
 ---
 
-**Bottom line:** Nothing urgent to prepare — but if this is more than a solo break, a quick check of recent texts or messages may surface context that didn't make it onto the calendar.
+**Bottom line:** There's nothing to prepare based on available information. If this is a real meeting, it may need attendees and an agenda added. If it's a personal block, you're good to go.
 
 ---
 

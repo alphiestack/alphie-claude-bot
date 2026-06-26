@@ -1,33 +1,33 @@
-# Meeting Prep — 6/26/2026, 4:09:43 PM
+# Meeting Prep — 6/26/2026, 6:25:25 PM
 
 ## Criminal Fitness: Lagree All Levels | Lower Body Focus + Functional Strength
 **Time:** 2026-06-26T15:30:00-07:00
 
 # Prep Brief: Criminal Fitness – Lagree Lower Body Focus
-**Friday, June 26 · 3:30 PM PT | 1210 Donnelly Ave, Burlingame, CA 94010**
+**Friday, June 26 | 3:30 PM | Arrive by 3:15 PM**
+1210 Donnelly Avenue, Burlingame, CA 94010
 
 ---
 
 ## What to Bring
-- ✅ **Grip socks** (required — can buy there)
-- ✅ **Water bottle + towel** (both available onsite if needed)
+- ✅ **Grip socks** (required — available for purchase there)
+- ✅ Water bottle + towel (rentals/refill stations available on-site)
 
-## Logistics
-- **Arrive by 3:15 PM** (15 min early per studio policy)
-- If this is your **first Lagree class**, arrival 10 min early is mandatory for machine/spring safety orientation — plan for 3:15–3:20 at the latest
+## What to Expect
+- **50 minutes total:** 40 min Lagree on the machine + 10 min "Warden's choice" (may include kettlebells, calisthenics, or agility work)
+- **Focus:** Glutes, hamstrings, quads, and core — slow, controlled reps with sustained tension. No momentum.
+- Class is small with hands-on trainer attention
 
-## What to Expect (50 min total)
-- **40 min Lagree** — lower body (glutes, hamstrings, quads) + core; slow, controlled tempo — no momentum
-- **10 min "Warden's Choice"** — may include kettlebells, calisthenics, or agility work
+## Key Rules to Know
+- **Springs are never changed mid-exercise** — know your setup before you start
+- **First time doing Lagree?** Arrive 10 minutes early (15 min total) for a machine orientation — this is required for safety
+- This is **not Pilates** — prior Pilates experience doesn't transfer directly
 
-## Key Things to Know
-- Springs are **never adjusted mid-exercise** — ask questions *before* class starts
-- Lagree ≠ Pilates, even if you have Pilates experience
-- Questions beforehand? Text **650-414-1817**
+---
 
-## Open Items
-- [ ] First time there? Confirm arrival time allows for full orientation
-- [ ] Do you have grip socks, or do you need to buy a pair onsite?
+## Follow-Up / Open Questions
+- Confirm your grip sock situation before leaving home
+- Questions? Text: **650-414-1817**
 
 ---
 

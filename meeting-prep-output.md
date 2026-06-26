@@ -1,40 +1,33 @@
-# Meeting Prep — 6/26/2026, 6:47:39 AM
+# Meeting Prep — 6/26/2026, 10:17:17 AM
 
 ## Criminal Fitness: Lagree All Levels | Lower Body Focus + Functional Strength
 **Time:** 2026-06-26T15:30:00-07:00
 
 # Prep Brief: Criminal Fitness – Lagree Lower Body Focus
-**Friday, June 26 · 3:30 PM · 1210 Donnelly Ave, Burlingame, CA 94010**
-
----
-
-## Arrive By: 3:15 PM
-*(Studio requires 15 min early; first-timers must arrive 10 min early for machine orientation)*
+**Friday, June 27 | 3:30 PM PT | 1210 Donnelly Ave, Burlingame, CA**
 
 ---
 
 ## What to Bring
-- ✅ **Grip socks** (required — they sell them on-site)
-- ✅ **Water bottle + towel** (rentals/refill stations available if needed)
+- ✅ **Grip socks** (required — can buy there)
+- ✅ Water bottle + towel (rentals/refill available on-site)
 
----
+## Arrival
+- **Arrive by 3:15 PM** (15 min early required)
+- If this is your **first Lagree class**, the studio mandates early arrival for a machine/spring safety orientation — plan accordingly
 
-## Class Snapshot
-- **50 min total:** 40 min Lagree + 10 min "Warden's choice" (kettlebells, calisthenics, agility, etc.)
-- **Focus:** Glutes, hamstrings, quads, core — slow/controlled reps, sustained tension, no momentum
-- **Key rule:** Springs are **never changed mid-exercise** — know your setup before you start
+## What to Expect
+- **50 min total:** 40 min Lagree + 10 min "Warden's choice" (may include kettlebells, calisthenics, or agility work)
+- Focus: **glutes, hamstrings, quads, core** — slow, controlled reps under sustained tension
+- **Do not expect Pilates** — Lagree is a distinct method; springs are never adjusted mid-exercise
 
----
+## Key Rules
+- No changing springs during class — know your resistance before you start
+- Prioritize form; trainers will correct you (intentionally)
 
-## First-Timer Notes
-- Lagree ≠ Pilates — expect a machine orientation if you're new
-- Controlled tempo and positioning are prioritized over intensity
-- Small class = expect direct coaching on form
-
----
-
-## Follow Up If Needed
-- Questions? Text **650-414-1817** before the class
+## Open Questions / Follow-Up
+- First time? **Text 650-414-1817** ahead of class with any questions
+- Confirm grip sock size/availability if you need to purchase on arrival
 
 ---
 

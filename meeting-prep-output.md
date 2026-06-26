@@ -1,31 +1,33 @@
-# Meeting Prep — 6/26/2026, 1:05:43 PM
+# Meeting Prep — 6/26/2026, 4:09:43 PM
 
 ## Criminal Fitness: Lagree All Levels | Lower Body Focus + Functional Strength
 **Time:** 2026-06-26T15:30:00-07:00
 
 # Prep Brief: Criminal Fitness – Lagree Lower Body Focus
-**Friday, June 26 | 3:30 PM | Arrive by 3:15 PM**
-1210 Donnelly Avenue, Burlingame, CA 94010
+**Friday, June 26 · 3:30 PM PT | 1210 Donnelly Ave, Burlingame, CA 94010**
 
 ---
 
 ## What to Bring
-- ✅ **Grip socks** (required — they sell them on-site)
-- ✅ Water bottle + towel (rentals/refill stations available if needed)
+- ✅ **Grip socks** (required — can buy there)
+- ✅ **Water bottle + towel** (both available onsite if needed)
 
-## What to Expect
-- **50-minute class:** 40 min Lagree + 10 min "Warden's choice" (kettlebells, calisthenics, agility, etc.)
-- **Focus:** Glutes, hamstrings, quads, core, with chest work integrated
-- **Style:** Slow, controlled reps — no momentum, strict form, no changing springs mid-exercise
+## Logistics
+- **Arrive by 3:15 PM** (15 min early per studio policy)
+- If this is your **first Lagree class**, arrival 10 min early is mandatory for machine/spring safety orientation — plan for 3:15–3:20 at the latest
+
+## What to Expect (50 min total)
+- **40 min Lagree** — lower body (glutes, hamstrings, quads) + core; slow, controlled tempo — no momentum
+- **10 min "Warden's Choice"** — may include kettlebells, calisthenics, or agility work
 
 ## Key Things to Know
-- **First time doing Lagree?** Arrive **20 minutes early** (10-min early requirement + buffer) — the studio requires a machine orientation for new students
+- Springs are **never adjusted mid-exercise** — ask questions *before* class starts
 - Lagree ≠ Pilates, even if you have Pilates experience
-- Plan your spring resistance **before** each exercise begins
+- Questions beforehand? Text **650-414-1817**
 
-## Follow-Up / Open Questions
-- 📞 Text **650-414-1817** with any pre-class questions
-- Confirm grip sock size/availability if you don't own a pair
+## Open Items
+- [ ] First time there? Confirm arrival time allows for full orientation
+- [ ] Do you have grip socks, or do you need to buy a pair onsite?
 
 ---
 
